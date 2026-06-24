@@ -1,3 +1,4 @@
+bamboo leaves crosswise veil the square-lined face
 22
 Can it bring the moon back in time for tonight?
 21
