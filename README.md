@@ -1,3 +1,4 @@
+7
 Someone’s garden is so lush, gleaming like jade,
 6
 As bamboo leaves crosswise veil the square-lined face.
