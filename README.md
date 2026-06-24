@@ -1,3 +1,4 @@
+Who knows if whose love is profound and true?
 9
 The wind goes the wind’s way, the clouds go the clouds’,
 8
