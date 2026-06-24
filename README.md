@@ -1,3 +1,4 @@
+so lush, gleaming like jade
 12
 bamboo leaves crosswise veil the square-lined face
 11
