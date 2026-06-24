@@ -1,3 +1,4 @@
+As bamboo leaves crosswise veil the square-lined face.
 5
 The wind goes the wind’s way, the clouds go the clouds’,
 4
