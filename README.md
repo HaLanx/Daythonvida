@@ -1,3 +1,4 @@
+28
 Dreaming of the distant traveler, the traveler from afar,
 27
 Your dress is so pristine white, it fades from my sight...
