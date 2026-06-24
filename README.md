@@ -1,3 +1,4 @@
+The wind goes the wind’s way, the clouds go the clouds’,
 4
 The river flows mournfully, cornflowers gently sway
 3
