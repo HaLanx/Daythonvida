@@ -1,3 +1,4 @@
+16
 Your dress is so pristine white, it fades from my sight...
 15
 Here, the smoke and fog blur the human shadow,
