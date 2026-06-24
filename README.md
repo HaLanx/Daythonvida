@@ -1,3 +1,4 @@
+Whose boat is anchoring at that moonlit wharf?
 2
 Can it bring the moon back in time for tonight?
 1
