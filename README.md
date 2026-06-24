@@ -1,3 +1,4 @@
+6
 Can it bring the moon back in time for tonight?
 5
 Why don't you come back to visit Vi Da village?
