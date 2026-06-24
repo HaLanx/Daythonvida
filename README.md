@@ -1,3 +1,4 @@
+8
 To watch the new sun rising on the betel palms.
 7
 Someone’s garden is so lush, gleaming like jade,
